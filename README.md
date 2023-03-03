@@ -1,1 +1,0 @@
-# smkn1manggis-anggaart
